@@ -1,6 +1,6 @@
 # Natalia Feitosa
 
-### Java Software Engineer
+### Java Software Engineer & Investment Specialist
 
 ## Qualifications
 ### Skills
